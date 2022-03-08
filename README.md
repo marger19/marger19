@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @marger19
+- 👀 I’m interested in hoa ky
+- 🌱 I’m currently learning Thai
